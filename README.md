@@ -1,0 +1,1 @@
+# ktmophotel.com
